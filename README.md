@@ -1,2 +1,9 @@
-# aicrypto-team
-AI-powered crypto and Web3 experimental project for blockchain innovation.
+# Crypto Man AI
+
+AI Powered Web3 Project 🚀
+
+Twitter:
+https://x.com/ShadabAlam98778
+
+Telegram:
+https://t.me/CryptomanAiteam
